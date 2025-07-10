@@ -20,4 +20,4 @@
 
 平台默认启用隐私浏览模式，无历史记录，不追踪行为，保证你的观影过程私密安全。点击任意链接，立即开启你的无码高清之旅！
 
-<span style="display:none;">[Canonical link]  (  ）</span> 
+<span style="display:none;">[Canonical link]  ( https://github.com/thhh2611/riben200000 ）</span> 
